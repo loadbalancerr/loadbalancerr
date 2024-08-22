@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **discord - .loadbalancer**
 
-- **FREEDOM**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
