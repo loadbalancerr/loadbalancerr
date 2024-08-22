@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **discord - .loadbalancer**
 
-- ⚡ Fun fact **I think that ....**
+- **Freedom**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
